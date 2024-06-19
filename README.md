@@ -1,1 +1,1 @@
-# Retail-Chatbot
+![image](https://github.com/thearqamj/Retail-Chatbot/assets/135017364/e523b552-4675-4a5c-a1dc-ff3a1abc87d0)![image](https://github.com/thearqamj/Retail-Chatbot/assets/135017364/0a83f653-1871-4d33-a1e6-992f9b9962a0)
